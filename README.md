@@ -24,6 +24,8 @@ I'm a passionate **Full-Stack Software Engineer** with a love for exploring dive
 ## 🌟 Let's Connect!
 
 - [LinkedIn](https://www.linkedin.com/in/haamid-ashraf-618756176/)
+- 📧 Email: haamidashraf@gmail.com
+- [Instagram](https://www.instagram.com/_haamid)
 
 ---
 
